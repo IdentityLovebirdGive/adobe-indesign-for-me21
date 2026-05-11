@@ -1,4 +1,4 @@
-# 
+# Adobe InDesign for macOS updated Panel - gradient maps and export to SVG offers the most advanced Adobe InDesign for macOS panel, with gradient maps and export to SVG. Ideal for
 
 
 
